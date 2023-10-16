@@ -1,4 +1,4 @@
-### Alessia Di Santo 👋
+### Alessia Di Santo 
 
 🇮🇹 Italy, 📍 Genoa
 
